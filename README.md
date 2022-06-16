@@ -1,2 +1,2 @@
 
-I just had to updat this
+I just had to update this
